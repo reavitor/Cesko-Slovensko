@@ -16,3 +16,13 @@ links:
 
 http://www.radio.cz/en/section/special/heroes-or-cowards-czechs-in-world-war-ii
 https://en.wikipedia.org/wiki/German_occupation_of_Czechoslovakia
+
+
+DMITRII GAIDIN
+
+http://avalon.law.yale.edu/imt/munich1.asp
+https://www.winstonchurchill.org/resources/speeches/1930-1938-the-wilderness/the-munich-agreement
+http://www.history.com/this-day-in-history/munich-pact-signed
+https://www.britannica.com/event/Munich-Agreement
+http://spartacus-educational.com/2WWmunich.htm
+
