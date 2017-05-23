@@ -10,3 +10,9 @@
 8th slide: 
 9th slide:
 10th slide: After the war 
+
+
+links:
+
+http://www.radio.cz/en/section/special/heroes-or-cowards-czechs-in-world-war-ii
+https://en.wikipedia.org/wiki/German_occupation_of_Czechoslovakia
