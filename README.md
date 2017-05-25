@@ -7,7 +7,7 @@
 5th slide: Great Leaders of the Revolution
 6th slide: Battles fought to win or loose this struggle  
 7th slide: Historical Context in which events took place   
-8th slide: Involments of other countries in munich agreement  
+8th slide: Involments of other countries in munich agreement  2
 9th slide: Influence Munich Agreement has on present day 
 10th slide: Where there goals meet 
 
