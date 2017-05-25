@@ -1,15 +1,15 @@
 # Cesko-Slovensko
 
-1st slide: Geographical Basic Description  
-2nd slide: Basic description of Munich Agreement
+1st slide: Political Forces
+2nd slide: Affect of Munich Agreement on World War II as a whole 
 3rd slide: Importance of Munich Agreement 
-4th slide: Hitlers involvment    
-5th slide: Hitlers Intentions
-6th slide: Big social problems 
-7th slide: Tensions in Czech government  
+4th slide: Hitlers involvment and involvment    
+5th slide: Great Leaders of the Revolution
+6th slide: Battles fought to win or loose this struggle  
+7th slide: Historical Context in which events took place   
 8th slide: Involments of other countries in munich agreement  
-9th slide: Affect on people
-10th slide: After the war 
+9th slide: Influence Munich Agreement has on present day 
+10th slide: Where there goals meet 
 
 
 links:
