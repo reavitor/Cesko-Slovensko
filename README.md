@@ -1,16 +1,18 @@
 # Cesko-Slovensko
 
-1st slide: Political Forces
+1st slide: Political Forces Done
 2nd slide: Affect of Munich Agreement on World War II as a whole 
 3rd slide: Importance of Munich Agreement 
 4th slide: Hitlers involvment and involvment    
 5th slide: Great Leaders of the Revolution
 6th slide: Battles fought to win or loose this struggle  
 7th slide: Historical Context in which events took place   
-8th slide: Involments of other countries in munich agreement  2
+8th slide: Involments of other countries in munich agreement  Done
 9th slide: Influence Munich Agreement has on present day 
 10th slide: Where there goals meet 
 
+
+http://cdn.images.express.co.uk/img/dynamic/141/590x/secondary/hitler-survived-war-escaped-364608.jpg
 
 links:
 
