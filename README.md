@@ -5,7 +5,7 @@
 3rd slide: Importance of Munich Agreement: Done
 4th slide: Hitlers involvment and involvment: Done    
 5th slide: Great Leaders of the Revolution: Done
-6th slide: daily lives of germans in cesko-slovensko
+6th slide: daily lives of germans in cesko-slovensko during annexation
 7th slide: Historical Context in which events took place   
 8th slide: Involments of other countries in munich agreement:  Done
 9th slide: Influence Munich Agreement has on present day 
