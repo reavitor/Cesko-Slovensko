@@ -1,7 +1,7 @@
 # Cesko-Slovensko
 
 1st slide: Political Forces: Done
-2nd slide: Affect of Munich Agreement on World War II as a whole 
+2nd slide: effect of Munich Agreement on World War II as a whole 
 3rd slide: Importance of Munich Agreement: Done
 4th slide: Hitlers involvment and involvment: Done    
 5th slide: Great Leaders of the Revolution: Done
