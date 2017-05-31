@@ -9,7 +9,7 @@
 7th slide: Historical Context in which events took place:    
 8th slide: Involments of other countries in munich agreement:  Done
 9th slide: Influence Munich Agreement has on present day:  
-10th slide: Where there goals met:
+10th slide: Where there goals met: Done
 
 
 http://cdn.images.express.co.uk/img/dynamic/141/590x/secondary/hitler-survived-war-escaped-364608.jpg
