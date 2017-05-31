@@ -31,5 +31,5 @@ http://www.history.com/this-day-in-history/munich-pact-signed
 https://www.britannica.com/event/Munich-Agreement
 http://spartacus-educational.com/2WWmunich.htm
 https://prezi.com/7ve7sxfvwupp/munich-agreement-failure/
-
+http://www.historynet.com/conversation-growing-up-in-nazi-germany.htm
 op
